@@ -1,2 +1,2 @@
-# Favorite Wallpapers
+
 
